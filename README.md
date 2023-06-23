@@ -1,1 +1,1 @@
-# mj-629.github.io
+# MJ의 블로그
